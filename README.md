@@ -1,0 +1,2 @@
+# competing
+Riesgos competitivos
